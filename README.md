@@ -1,1 +1,1 @@
-# hRecipes.com
+# HRecipes.com
